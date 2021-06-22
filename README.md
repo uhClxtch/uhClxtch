@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @uhClxtch
-- 👀 I’m interested in ... Coding, tech, video games and animals
-- 🌱 I’m currently learning ... How to code, computer science
-- 💞️ I’m looking to collaborate on ... Twitch or Youtube
-- 📫 How to reach me ... Discord-uhClxtch#0001
+- 👀 I’m interested in ... Coding, animation, tech, video games and animals.
+- 🌱 I’m currently learning ... How to code, computer science.
+- 💞️ I’m looking to collaborate on ... Twitch or Youtube.
+- 📫 How to reach me ... Discord-uhClxtch#0001.
